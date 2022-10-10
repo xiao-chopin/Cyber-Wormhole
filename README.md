@@ -1,5 +1,4 @@
-# Cyber-Wormhole 量子虫洞
+来自东方的神秘力量,# Cyber-Wormhole 量子虫洞
 
 [Cyber-Wormhole](https://github.com/xiao-chopin/Cyber-Wormhole)
-
-别让掌海知道了捏
+来自东方的神秘力量,别让掌海知道了捏.
